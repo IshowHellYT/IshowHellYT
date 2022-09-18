@@ -1,0 +1,7 @@
+-  Hi, I’m @IshowHellYT
+-  I’m interested in making a game
+-  I’m currently learning Javascript and C++
+-  I’m looking to collaborate on anything i dont care
+-  How to reach me, dm me on twitter or comment on my yt channel
+-  twitter:https://twitter.com/YtIshow
+-  youtube: https://www.youtube.com/channel/UCvNwCo2HyP3hJmlVrsuZRUA
